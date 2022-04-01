@@ -5,4 +5,4 @@ I do like sports in general and in particular F1, football and NBA.
 
 I like photography and video editing also if I'm bad at both. If you need something check out my telegram @christiancuratolo. I'm also on instagram @instachris__ 
 
-See you around :)
+See you around 😉
